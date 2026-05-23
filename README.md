@@ -1,18 +1,18 @@
-<p align="center">
-  <img src="https://github.com/aushentic/teststest/blob/ec7282d269f898f1986d04411fc1e1192878a0d6/8b57bf2876ea53e2c3dde718fee161a5.jpg" width="100%">
-</p>
+<img width="736" height="349" alt="Image" src="https://github.com/user-attachments/assets/3751b848-7964-48ff-9d8a-890ea9e0374d" />
 
 <p align="center">
-  <i>"“The loneliest feeling is realizing you stopped telling people how you really feel.”</i>
+  <i>“The loneliest feeling is realizing you stopped telling people how you really feel.”</i>
 </p>
 
-<p align="center">
-  <img src="https://github.com/aushentic/hehe/blob/ad85a7ddda14c5e0a2fb9c03da67126b0cf31b07/8c3c1e2e54581b420df26181ac8a32d7.gif" width="100%">
-</p>
+<img width="540" height="304" alt="Image" src="https://github.com/user-attachments/assets/72c8860e-25a4-4e1b-8738-b5bb6a12a16e" />
 
 ✧･ﾟ: *✧･ﾟ:*
 <p align="left">
-  • welcome to my github! i relate to denji and mostly use him in pt😅😅 lowk me irl jaja! though i sometimes use summer gojo/my oc hehe, also if youre one of my friends that i barely talk to -- please int w/ anytime haha! im mostly awkward and oftenly stay quiet if u aint close to me😓
+  • welcome to my github! i relate to denji and mostly use him in pt😅😅 lowk me irl jaja! though i sometimes use gojo, my oc or choso hehe, also if youre one of my friends that i barely talk to -- please int w/ me anytime haha! im mostly awkward and often quiet if u aint a cf..
+</p>
+† ———————— †
+<p align="left">
+  take note that i can be rude as a joke to my close friends, so if youre oversensitive id try to adjust my personality around you..., haha, im really sorry if i hurt your feelings whenever i joke around, trust me i dont mean every mean things i say.
 </p>
 
 
