@@ -61,7 +61,7 @@ niaa(zavier) tbh lately, ive actually decided to tone down the bullying and teas
 
 kkotsuu, hes lowkey funny and is one of the people who matches my sarcastic energy. i don't have to sugarcoat things around him because he’s on the same wavelength:) [me !] wanna femboy rp aush</p>
 
-banana, she is a genuinely great friend, and the talent she has for making ponies is honestly amazing icl. But then there’s her sense of humor💔 it’s completely unhinged and her jokes are so chaotic that they genuinely scare me sometimes, overall shes a good friend to be with:))
+banana, she is a genuinely great friend, and the talent she has for making ponies is honestly amazing icl. But then there’s her sense of humor😓 it’s completely unhinged and her jokes are so chaotic that they genuinely scare me sometimes, overall shes a good friend to be with:))
 <!--
 **nctorune/nctorune** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
